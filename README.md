@@ -1,2 +1,3 @@
-# entwurf-24
-Entwurf
+# Entwurf Tischlerei Hölscher
+
+Unverbindlicher Entwurf von Leon Oßendorf (noindex). Kein offizieller Auftritt.
